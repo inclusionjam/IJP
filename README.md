@@ -1,1 +1,1 @@
-# IJP
+# IJP The Inclusion Jam Project uses music to join the generatons. At IJP events all are welcome to join in playing or singing, often extra instruments are already set up. These events are held in public venues that do not have age restrictions. youth can join the adults.
